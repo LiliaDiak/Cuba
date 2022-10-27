@@ -1,2 +1,2 @@
 # Cuba
-https://liliaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa.github.io/Cuba/
+https://liliadiak.github.io/Cuba/
